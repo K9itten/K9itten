@@ -3,7 +3,7 @@
 
 [bio](https://e-z.bio/Jamie)
 
-Nu2ella#0001
+K9.#0727
 
 ![JamieUwU](https://discord-readme-badge.vercel.app/api?id=607990223229681664)
 
