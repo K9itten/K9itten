@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm K9</h1>
 <h3 align="center">i am 18y.o free time "coding" enjoyer.. Welcome to my profile ig</h3>
 
-[bio](https://e-z.bio/Jamie)
+[:>](https://k9itten.sayout.me/)
 
 K9.#0727
 
